@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @otterlottery
+- 👀 I’m interested in music software
+- 🌱 I’m currently learning ... nothing lol i'm just here to comment and share problems on the extensions i use
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... crmsn1116@gmail.com
